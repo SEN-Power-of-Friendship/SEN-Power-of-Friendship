@@ -8,6 +8,6 @@
 3. นายชินดนัย ขันโท 643020470-1 Section2 (643020470-1)
 <img src="/media/Student_643020482_4.jpg" width="256" height="auto">
 4. นายปรัชญา โพธิ์ทอง 643020482-4 Section 2 (PratyaPothong)
-5. นางสาวณัฐธิดา ปักกังลาภัง 643021227-5 Section2 (Qnqueeny)
+5. นางสาวณัฐธิดา ปักกังลาภัง 643021227-5 Section2 (์Nattida Pakkanglapang)
 <img src="/media/643021227-5.jpg" width="256" height="auto">
 6. 
