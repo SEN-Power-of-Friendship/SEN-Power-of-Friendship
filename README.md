@@ -10,4 +10,5 @@
 4. นายปรัชญา โพธิ์ทอง 643020482-4 Section 2 (PratyaPothong)
 <img src="/media/643021227-5.jpg" width="256" height="auto">
 5. นางสาวณัฐธิดา ปักกังลาภัง 643021227-5 Section2 (์Nattida Pakkanglapang)
-6. 
+<img src="/media/623021033-6.jpg" width="256" height="auto">
+6. นายรณภพ รงค์ทอง 623021033-6 Section 2 (Ronapop)
